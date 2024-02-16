@@ -1,0 +1,1 @@
+https://www.cihnet.co.ma/ScriptResource.axd?d=wqnW9nTUymEYZklYQarhPSDFQmvqijyJmJBs98IEV7-o_Pd7Wg0QTVeB3eCC6knSGMQkV-0Akhv7OkiWh9oRjaEC0hZPog8sXR0dmByjGnhTG028FSi4k9N3eJaKnZ9DsjzrNGwh7GS5lrJzM8HJTw2&t=41339750
